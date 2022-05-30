@@ -1,0 +1,2 @@
+# ainayabot
+lo jangan begitu
